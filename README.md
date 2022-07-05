@@ -31,7 +31,7 @@ Exercise should help us to become more functional and fit and not vice-versa.
 |---|---|---|
 | Perform it at the beginning of every workout session. Perform it until you feel warmed up but don’t get exhausted while performing it.| Perform weights and cardio every alternate day. Perform with correct form and technique. Keep yourself properly hydrated during workout. If you can perform more repetitions, sets and lift more weights then please carry on and if you can jog for longer please go ahead. | Perform 2 sets of every stretch soon after workout. Make sure you hold every stretch for a minimum of 30 sec. Make sure you feel the stretch but if the stretch hurts stop it right away and do not force yourself, instead try to better it slowly with every performance. |
 | | **Calisthenics and Weights** | |
-| Neck Rotations (Flexion and Extension / Lateral Flexion / Rotation) | Free Squats – Back / Goblet Squats with Weight | Paschimottanasana (Seated Forward Bend) |
+| [Neck Rotations (Flexion and Extension / Lateral Flexion / Rotation)](https://www.youtube.com/watch?v=W2IlxHQwR14) | Free Squats – Back / Goblet Squats with Weight | Paschimottanasana (Seated Forward Bend) |
 | Arm Swings | Single Leg Standing Calf Raise | Baddha Konasana (Bound Angle Pose / Cobbler Pose) |
 | Shoulder Circumduction | Wide Grip Chin up | Bhujangasana (Cobra Pose) |
 | Dynamic Chest Stretch | Inverted Rows | Parsva Urdhva Hastasana (Standing Side Bend) |
