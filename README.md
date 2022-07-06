@@ -37,9 +37,9 @@ Exercise should help us to become more functional and fit and not vice-versa.
 | [Dynamic Chest Stretch](https://www.youtube.com/watch?v=kLmWN3Qsj0A) | Inverted Rows | Parsva Urdhva Hastasana (Standing Side Bend) |
 | [Side Bends](https://www.youtube.com/watch?v=2TO6K0xcYeU) | Push Ups / Regressed Push Ups | Pec Stretch (Behind the back elbow to elbow grip / Doorway Pec Stretch). |
 | [Windmill](https://www.youtube.com/watch?v=bG5cn-erYUg) | Parallel Bar Dip | Dhanurasana (Bow Pose) |
-| Cat and Camel Drill | Prone Alternate Arm and Leg Raise. | + Proper Nutrition and Rest (Recovery) |
+| [Cat and Camel Drill](https://www.youtube.com/watch?app=desktop&v=v1KltmDT8TE) | Prone Alternate Arm and Leg Raise. | + Proper Nutrition and Rest (Recovery) |
 | Standing Hip Flexion and Rotation | Partial Crunches – Full Crunches | |
-| Leg Swings (Front and Back Swings) | Grip and Hang | |
-| Leg Swings (Side Swings) | Pinch holds | |
-| Spider Lunges | **Cardio** | |
-| High knees (Running in place) – 1 to 2 Mins. | Jogging (If you have access to rowing machine / elliptical trainer / swimming then you can perform it every alternate cardio days) | |
+| [Leg Swings (Front and Back Swings)](https://www.youtube.com/watch?app=desktop&v=naW8u72lOzI) | Grip and Hang | |
+| [Leg Swings (Side Swings)](https://www.youtube.com/watch?app=desktop&v=naW8u72lOzI) | Pinch holds | |
+| [Spider Lunges](https://www.youtube.com/watch?app=desktop&v=M_OoFzysWak) | **Cardio** | |
+| [High knees (Running in place) – 1 to 2 Mins.](https://www.youtube.com/watch?app=desktop&v=RasuDnjQI_k) | Jogging (If you have access to rowing machine / elliptical trainer / swimming then you can perform it every alternate cardio days) | |
