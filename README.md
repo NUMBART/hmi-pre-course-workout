@@ -32,11 +32,11 @@ Exercise should help us to become more functional and fit and not vice-versa.
 | Perform it at the beginning of every workout session. Perform it until you feel warmed up but don’t get exhausted while performing it.| Perform weights and cardio every alternate day. Perform with correct form and technique. Keep yourself properly hydrated during workout. If you can perform more repetitions, sets and lift more weights then please carry on and if you can jog for longer please go ahead. | Perform 2 sets of every stretch soon after workout. Make sure you hold every stretch for a minimum of 30 sec. Make sure you feel the stretch but if the stretch hurts stop it right away and do not force yourself, instead try to better it slowly with every performance. |
 | | **Calisthenics and Weights** | |
 | [Neck Rotations (Flexion and Extension / Lateral Flexion / Rotation)](https://www.youtube.com/watch?v=W2IlxHQwR14) | Free Squats – Back / Goblet Squats with Weight | Paschimottanasana (Seated Forward Bend) |
-| Arm Swings | Single Leg Standing Calf Raise | Baddha Konasana (Bound Angle Pose / Cobbler Pose) |
-| Shoulder Circumduction | Wide Grip Chin up | Bhujangasana (Cobra Pose) |
-| Dynamic Chest Stretch | Inverted Rows | Parsva Urdhva Hastasana (Standing Side Bend) |
-| Side Bends | Push Ups / Regressed Push Ups | Pec Stretch (Behind the back elbow to elbow grip / Doorway Pec Stretch). |
-| Windmill | Parallel Bar Dip | Dhanurasana (Bow Pose) |
+| [Arm Swings](https://www.youtube.com/watch?v=VFIoWrzfO3g) | Single Leg Standing Calf Raise | Baddha Konasana (Bound Angle Pose / Cobbler Pose) |
+| [Shoulder Circumduction](https://www.youtube.com/watch?v=EENVG0jhNEc) | Wide Grip Chin up | Bhujangasana (Cobra Pose) |
+| [Dynamic Chest Stretch](https://www.youtube.com/watch?v=kLmWN3Qsj0A) | Inverted Rows | Parsva Urdhva Hastasana (Standing Side Bend) |
+| [Side Bends](https://www.youtube.com/watch?v=2TO6K0xcYeU) | Push Ups / Regressed Push Ups | Pec Stretch (Behind the back elbow to elbow grip / Doorway Pec Stretch). |
+| [Windmill](https://www.youtube.com/watch?v=bG5cn-erYUg) | Parallel Bar Dip | Dhanurasana (Bow Pose) |
 | Cat and Camel Drill | Prone Alternate Arm and Leg Raise. | + Proper Nutrition and Rest (Recovery) |
 | Standing Hip Flexion and Rotation | Partial Crunches – Full Crunches | |
 | Leg Swings (Front and Back Swings) | Grip and Hang | |
