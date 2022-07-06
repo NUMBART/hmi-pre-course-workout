@@ -38,7 +38,7 @@ Exercise should help us to become more functional and fit and not vice-versa.
 | [Side Bends](https://www.youtube.com/watch?v=2TO6K0xcYeU) | Push Ups / Regressed Push Ups | Pec Stretch ([Behind the back elbow to elbow grip](https://www.acefitness.org/resources/everyone/blog/5657/5-chest-stretch-variations/) / Doorway Pec Stretch). |
 | [Windmill](https://www.youtube.com/watch?v=bG5cn-erYUg) | Parallel Bar Dip | [Dhanurasana (Bow Pose)](https://www.youtube.com/watch?app=desktop&v=4P2mYcOGxbU) |
 | [Cat and Camel Drill](https://www.youtube.com/watch?app=desktop&v=v1KltmDT8TE) | Prone Alternate Arm and Leg Raise. | + Proper Nutrition and Rest (Recovery) |
-| Standing Hip Flexion and Rotation | Partial Crunches – Full Crunches | |
+| Standing Hip [Flexion](https://www.youtube.com/watch?app=desktop&v=ApZOAx24-X8) and [Rotation](https://www.youtube.com/watch?app=desktop&v=73XPwD9VHLk) | Partial Crunches – Full Crunches | |
 | [Leg Swings (Front and Back Swings)](https://www.youtube.com/watch?app=desktop&v=naW8u72lOzI) | Grip and Hang | |
 | [Leg Swings (Side Swings)](https://www.youtube.com/watch?app=desktop&v=naW8u72lOzI) | Pinch holds | |
 | [Spider Lunges](https://www.youtube.com/watch?app=desktop&v=M_OoFzysWak) | **Cardio** | |
