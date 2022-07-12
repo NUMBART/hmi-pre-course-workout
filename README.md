@@ -50,4 +50,4 @@ Exercise should help us to become more functional and fit and not vice-versa.
 
 
 
-Source: All information contained in this page has been copied from [HMI, Darjeeling website](https://hmidarjeeling.com/pre-course-workout-plan/). The sole aim of this page is to make other related links readily available and the existing information more readable.
+Source: All information contained in this page has been sourced from [HMI, Darjeeling website](https://hmidarjeeling.com/pre-course-workout-plan/). The sole aim of this page is to make other related links readily available and the existing information more readable.
